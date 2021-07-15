@@ -1,0 +1,1 @@
+I want a career where I am financially stable with flexible work conditions. I want to build a family and legacy and I feel that I cannot do either with that same cycle; living paycheck to paycheck working 12 hour days.
